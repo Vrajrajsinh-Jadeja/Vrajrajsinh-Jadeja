@@ -5,6 +5,7 @@
 - 📫 How to reach me +9106423088
 - 😄 Pronouns: Vraj
 - ⚡ Fun fact: Simple Guy
+- New WEb
 
 <!---
 Vrajrajsinh-Jadeja/Vrajrajsinh-Jadeja is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
